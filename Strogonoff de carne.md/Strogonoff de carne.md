@@ -1,14 +1,14 @@
-#**Strogonoff de Carne**
+****Strogonoff de Carne****![](C:\Users\adema\OneDrive\Imagens\bovina.jpg)
 
 
 
-- **Total:** 40min 
 
-  **Preparação:** 5min 
 
-  **Cozimento:** 35min
+* **Total:** 40min 
 
-- **17 pessoas** já marcaram como feita
+* **Preparação:** 5min
+
+- **Cozimento:** 35min
 
 - **Dificuldade:** Fácil  
 
